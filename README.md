@@ -2,7 +2,7 @@
 - 🌱I'm looking for help to improving my skill as a python programmer 
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me whatsapp: 09019699859
-- Email: codebyakira@gmail.com
+- Email: jayeolaayomi@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love to eat and listen to music 
 
