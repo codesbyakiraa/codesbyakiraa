@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @codesbyakiraa a graduate of Python Programming at Root code club.
 - 🌱I'm looking for help to improving my skill as a python programmer 
-- 💞️ I’m looking to collaborate on projects
+- 💞️ I’m looking to collaborate on projects/ freelancing 
 - 📫 How to reach me whatsapp: 09019699859
 - Email: jayeolaayomi@gmail.com
 - 😄 Pronouns: she/her
